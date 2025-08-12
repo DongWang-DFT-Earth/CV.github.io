@@ -32,4 +32,7 @@ Ab initio calculations and machine learning-based molecular dynamics simulations
 Evolution of the early Earth\
 Structure and dynamics of the deep Earth
 
-#### [**📄 Full CV**](./CV_DONG_WANG.pdf)
+#### Research Interests
+Ab initio calculations and machine learning-based molecular dynamics simulations\
+Evolution of the early Earth\
+Structure and dynamics of the deep Earth
