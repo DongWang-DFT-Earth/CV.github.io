@@ -1,16 +1,23 @@
 
-- Outstanding Graduate Award (CUMT), 2025.
+- National Scholarship for Undergraduate Student, 2019
 
-- National Scholarship for Graduate Student, 2024.
+- Outstanding Graduate, 2021
 
-- First-Prize Scholarship (CUMT), 2024.
+- Outstanding Student Presentation Award, CGU Fall General Assembly, 2022
 
-- First-Prize Scholarship (CUMT), 2023.
+- National Scholarship for Graduate Student, 2023
 
-- Freshman Scholarship (CUMT), 2022.
+- Best Poster Award, IPACES General Assembly, 2023
 
-- Outstanding Graduation Project Award (Jiangsu Province), 2022.
+- Outstanding Achievement Award of Deep Space Exploration Lab, 2024
 
-- First-Prize Enterprise Scholarship (CUMT), 2020.
+- Outstanding Student and PhD candidate Presentation (OSPP) Award, EGU General Assembly, 2024
 
-- First-Prize Scholarship (CUMT), 2019.
+
+
+
+
+
+
+
+
