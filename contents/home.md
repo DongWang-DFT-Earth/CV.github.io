@@ -32,4 +32,4 @@ Ab initio calculations and machine learning-based molecular dynamics simulations
 Evolution of the early Earth\
 Structure and dynamics of the deep Earth
 
-[Full CV](./your_cv.pdf)
+[Full CV](./content/CV_DONG_WANG.pdf)
